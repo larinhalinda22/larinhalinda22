@@ -1,12 +1,23 @@
 ## Oi meu nome é Lara Maria 😎
-gosto de cozinhar doces
-sou uma menina muito extrovertida
-gosto de exatas por mas que eu tenha mais dificuldade
+_
+--gosto de cozinhar doces  
+
+
+--sou uma menina muito extrovertida
+
+
+--gosto de exatas por mas que eu tenha mais dificuldade
+
 namoro
+
 sonho em me formar no que gosto
+
 amo filmes de romances 
+
 sou palmeirense
+
 faço curso de espanhol e sou estudante
+
 sou risonha e carismática
 
 
